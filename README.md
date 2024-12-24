@@ -1,5 +1,8 @@
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎![image](https://github.com/user-attachments/assets/b803a6af-8724-4003-adc2-7ff7b80f0161)
 
-![image](https://github.com/user-attachments/assets/a12b37ac-e869-45f2-a0d0-9918d50709b2)
+
+![398452213-0fe2f680-0db0-4cae-a6d0-c964d54f0ae9](https://github.com/user-attachments/assets/405b027e-c5c9-4162-a02a-8db84e826fc4)
+
 
 
 
@@ -18,7 +21,5 @@
 -> Uh yes i need friends!! read my carrd that i linked 4 more info, lovely! ^-^
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/b00b620b-ddee-4407-a167-cb60978d1eda)
-
-big three art by @mommorua on X,,
 
  Divider by thecutestgrotto on tumblr!!
