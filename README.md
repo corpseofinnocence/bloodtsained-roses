@@ -6,9 +6,11 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/62d38f30-7f5d-497f-b7a8-1fd9f7f9daae)
 
--> *Feel free to interact!!! Im nice and very approachable trust >-O*
+-> *Feel free to interact!!! Im very nice and sweet and very approachable trust!! >-O*
 
 -> C(uddle) + H(ide) Are always welcome unless my name says otherwise!
+
+-> No Insp/Copy without permission pls and thank yew!! ^-^
 
 -> Most Do not interacts are probably depending on how down i feel, but feel free to ask for c+h!! just interact with caution! ^-^
 
