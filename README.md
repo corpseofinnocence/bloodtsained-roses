@@ -1,5 +1,7 @@
 
-![image](https://github.com/user-attachments/assets/e0d67724-f3f3-4459-9e4a-d5b501a3234b)
+![image](https://github.com/user-attachments/assets/a12b37ac-e869-45f2-a0d0-9918d50709b2)
+
+
 
 -> *Feel free to interact!!! Im very nice and sweet and very approachable trust!! >-O*
 
