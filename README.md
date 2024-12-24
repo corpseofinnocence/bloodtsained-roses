@@ -1,12 +1,5 @@
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/9e78da49-d76e-4d0a-b5d6-f8592c4ef1f7) 
-
-
 
 ![image](https://github.com/user-attachments/assets/e0d67724-f3f3-4459-9e4a-d5b501a3234b)
-
-
-
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/62d38f30-7f5d-497f-b7a8-1fd9f7f9daae)
 
 -> *Feel free to interact!!! Im very nice and sweet and very approachable trust!! >-O*
 
@@ -23,3 +16,7 @@
 -> Uh yes i need friends!! read my carrd that i linked 4 more info, lovely! ^-^
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/b00b620b-ddee-4407-a167-cb60978d1eda)
+
+big three art by @mommorua on X,,
+
+ Divider by thecutestgrotto on tumblr!!
