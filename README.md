@@ -6,9 +6,9 @@
 
 
 
--> *Feel free to interact!!! Im very nice and sweet and very approachable trust!! >-O*
+-> *Feel free to interact!!! Im very nice and sweet and very approachable trust!! >:3*
 
--> C(uddle) + H(ide) Are always welcome unless my name says otherwise!
+-> C(uddle) + H(ide) Are always welcome unless my name says otherwise! :P
 
 -> No Insp/Copy without permission pls and thank yew!! ^-^
 
