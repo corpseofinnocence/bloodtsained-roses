@@ -18,6 +18,8 @@
 
 -> **Don't start drama over little stuff like ships please.. D:**
 
+-> I don't rlly care about ships as long as they're not incest involved or adult x minor weird ass ships :)
+
 -> Uh yes i need friends!! read my carrd that i linked 4 more info, lovely! ^-^
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/b00b620b-ddee-4407-a167-cb60978d1eda)
