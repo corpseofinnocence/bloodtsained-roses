@@ -36,4 +36,6 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/5772b3e2-22be-4de1-987c-5f09e2b48e8d)
 
- Dividers by necroangelz on tumblr!!
+ Dividers by necroangelz on tumblr!! ♡
+ My Melody Favicons by lunneclothing on tumblr!! ♡
+ Hello Kitty and Hello Daniel png by decomails on tumblr!!  ♡
