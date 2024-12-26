@@ -29,8 +29,7 @@
 
 -> Uh yes i need friends!! read my carrd that i linked 4 more info, lovely! ![image](https://github.com/user-attachments/assets/e15fbae5-ec77-4935-b40d-785d654cfe3a)
 
-
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎![image](https://github.com/user-attachments/assets/214445e9-4baa-405b-b066-fde6034d683e)
+‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎   ‎![image](https://github.com/user-attachments/assets/214445e9-4baa-405b-b066-fde6034d683e)
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎![image](https://github.com/user-attachments/assets/10fb83da-9962-4ae1-afbd-717c152b8266)
 
 
